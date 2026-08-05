@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am none, just try to make money in web3
+I am none, just try to make money from web3
 
 
 ## 🌐 Socials:
